@@ -1,0 +1,4 @@
+- 👋 Hi, I’m the Owner of @R-Development
+- 👀 I’m interested in Hacking because im a Grey Head (btw i like taking down Scamming webites ;))
+- 🌱 I’m currently learning scripting own python Scripts
+- You can reach me on my Discord Server: https://discord.gg/Hh7hjRKtv6
