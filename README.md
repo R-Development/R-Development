@@ -1,2 +1,1 @@
-- 👋 Hi, Ich bin der Owner von @R-Development
-- R-Development https://discord.gg/Hh7hjRKtv6
+Pingu likes to leak Stuff
